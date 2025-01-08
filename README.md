@@ -11,4 +11,5 @@ KẾT QUẢ:
 
 
 
-![Ảnh chụp màn hình 2025-01-08 135718](https://github.com/user-attachments/assets/9858c1e7-2c00-4c0c-a38a-203eedd41a09)
+
+![898ca43e591be545bc0a](https://github.com/user-attachments/assets/46ab0360-27e6-4454-adde-262fc2e7e8c2)
